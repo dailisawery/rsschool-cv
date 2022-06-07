@@ -8,3 +8,4 @@ My purposes are be happy, smart and rich. My qualities are:
 +good sense of humour
 +curiosity
 My discord nickname is @dailisawery. My GitHub nickname is dailisawery.
+I have been working in real estate agency.
